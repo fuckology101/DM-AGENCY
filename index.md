@@ -1,37 +1,32 @@
-## Welcome to GitHub Pages
+## Welcome to DM-Agency
 
-You can use the [editor on GitHub](https://github.com/fuckology101/fuzzy-giggle/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+We hope you enjoy our hand selected models to choose from!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Our offerings include:
+A 3 tier "Girlfriend Experience"
+1) A 40 dollar all-day plan - messaging via Twitter, 5 minute sexting session with pics and video
+2) A 80 dollar 1 week plan - messaging via Twitter and Snapchat, 5 individual 10 minute sexting sessions with custom pics and video, and goodnight texts with pics every night
+3) A 300 dollar 1 month plan - messaging via Twitter, Snapchat and, her REAL phone number, 10 individual 20 minute sexting sessions with custom pics and custom videos, good morning and goodnight texts with pics
 
-### Markdown
+Premium Dropbox link for a 1 time 60 dollar payment via Cashass, Venmo, PayPal, Xoom, TransferWise, Apple pay, and Worldremit
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+It is our goal to keep our clients and models safe, secure and, 100% satisfied.
 
-[Link](url) and ![Image](src)
-```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/fuckology101/fuzzy-giggle/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+For questions or concerns please contact us at dmagency@mail.com
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+
+
+
+
+
+
+We reserve the right to deny anyone to any and all services offered for any reason.
